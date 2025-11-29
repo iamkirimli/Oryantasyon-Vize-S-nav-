@@ -1,1 +1,3 @@
-# Oryantasyon-Vize-S-nav-
+# Oryantasyon-Vize-Sinavi
+
+https://www.youtube.com/@iamkirimli
